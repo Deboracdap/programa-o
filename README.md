@@ -1,4 +1,4 @@
 # programa-o
-Debora Cristina e Elivânio 
+Debora Cristina
 
 Professora: Débora Cristina
