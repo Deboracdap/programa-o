@@ -1,4 +1,4 @@
-# programa-o
+# programação
 Debora Cristina
 
 Professora: Débora Cristina
